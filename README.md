@@ -9,3 +9,5 @@ Karl Gudino, Joseph Villa, Nicholas Moulos
 Youtube link is within the "CPE 301 Group 46 Semester Project" document
 
 Schematic done by Joseph, he had issues uploading it so we did it for him
+
+Also had a miscommunication and did two reports
